@@ -1,0 +1,1 @@
+# Chizai Job Navi Redirect
